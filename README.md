@@ -1,2 +1,5 @@
-# Nudes_R_Us
-nudes are us :3
+# Nudes R Us.
+
+A site where you can find all sorts of nude celeb photos.
+
+#### Made by FHGDev#6545
